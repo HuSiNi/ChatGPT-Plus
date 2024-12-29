@@ -19,4 +19,4 @@
 
 如果需要的话直接扫码添加本人微信 即可
 
-!(https://github.com/HuSiNi/ChatGPT-Plus/blob/main/00050-1981508610.png)
+![https://github.com/HuSiNi/ChatGPT-Plus/blob/main/00050-1981508610.png]
