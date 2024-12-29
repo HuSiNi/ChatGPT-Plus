@@ -17,6 +17,8 @@
 
 4.方便。直接提供成品号（包括 plus账号密码 邮箱账号密码 ，到手即可改密）您什么都不用提供。
 
-如果需要的话直接扫码添加本人微信（ysfybbxf） 即可
+![广告图](https://github.com/HuSiNi/ChatGPT-Plus/blob/main/20061735439095_.pic.jpg)
+
+## 如果需要的话直接扫码添加本人微信（ysfybbxf） 即可
 
 ![微信二维码](https://github.com/HuSiNi/ChatGPT-Plus/blob/main/00050-1981508610.png)
